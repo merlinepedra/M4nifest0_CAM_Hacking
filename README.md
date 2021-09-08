@@ -67,7 +67,7 @@
 # See how it works v1.0.0
 ----------------------
 - 🔞 V1.0..0  
--  https://m4nifest0.group
+-  https://m4nifest0.group/product/hack-phone-camera/
 # How to ger:
 ----------------------
 - 📌 Visit our channel or our site to download .
