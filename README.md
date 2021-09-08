@@ -67,7 +67,7 @@
 # See how it works v1.0.0
 ----------------------
 - 🔞 V1.0..0  
--  https://m4nifest0.group/product/telegram-message-sender/
+-  https://m4nifest0.group
 # How to ger:
 ----------------------
 - 📌 Visit our channel or our site to download .
